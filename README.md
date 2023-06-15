@@ -8,4 +8,4 @@ But I will figure it out as I want to master github.
 I really want to master github so I can really make a different in my career
 
 ## My Favorite Authors
-Stephen King, Dean Koontz
+Stephen King, Dean Koontz, Robert McCammon
