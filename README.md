@@ -6,3 +6,6 @@ But I will figure it out as I want to master github.
 
 ## My Passions
 I really want to master github so I can really make a different in my career
+
+## My Favorite Books
+I love anything from Stephen King or Dean Koonts
